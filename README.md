@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **C, C++, Python, Data Structures, Algorithms.**
 
-- 📫 Have any opportunity! reach me **gvishwa27@gmail.com**
+- 📫 Have any opportunity! kindly reach me **gvishwa27@gmail.com**
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1dnft3TNfrZS7qG21R3vmjd4QaQSmfAo2/edit?usp=sharing&ouid=114613582182606749304&rtpof=true&sd=true](https://docs.google.com/document/d/1dnft3TNfrZS7qG21R3vmjd4QaQSmfAo2/edit?usp=sharing&ouid=114613582182606749304&rtpof=true&sd=true)
 
