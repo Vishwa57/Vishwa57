@@ -3,7 +3,7 @@
 
 - 🔭 I’m actively pursuing opportunities in **Software development field.**
 
-- 💬 Ask me about **C, C++, Python, Data Structures, Algorithms.**
+- 💬 Primary Skills :  **C, C++, Python, Data Structures, Algorithms.**
 
 - 📫 Have any opportunity! kindly reach me **gvishwa27@gmail.com**
 
