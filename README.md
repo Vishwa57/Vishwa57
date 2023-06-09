@@ -7,7 +7,7 @@
 
 - 📫 Have any opportunity?! kindly reach me **gvishwa27@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1dnft3TNfrZS7qG21R3vmjd4QaQSmfAo2/edit?usp=sharing&ouid=114613582182606749304&rtpof=true&sd=true](https://docs.google.com/document/d/1dnft3TNfrZS7qG21R3vmjd4QaQSmfAo2/edit?usp=sharing&ouid=114613582182606749304&rtpof=true&sd=true)
+- 📄 Know about my experiences [(https://drive.google.com/file/d/1F8UjkkCvO2FangBX6gIHeZ4L2J0FUOCL/view?usp=drivesdk](https://docs.google.com/document/d/1dnft3TNfrZS7qG21R3vmjd4QaQSmfAo2/edit?usp=sharing&ouid=114613582182606749304&rtpof=true&sd=true)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
