@@ -7,7 +7,7 @@
 
 - 📫 Have any opportunity?! kindly reach me **gvishwa27@gmail.com**
 
-- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1u1ej1AadtyltJU-J2p6Jr3K5AaLv24JM/view?usp=drive_link)
+- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1TlMJjuNICD-9lt0KldjoshTh-k6438dd/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
